@@ -2,7 +2,7 @@
 
 ↬ ˚✧┊ I like RPG's, Cozy stuff, cosplay, Miku, Honkai and indie games
 
-↬ ˚✧┊ Fave characters: Stelle, Cinnamon Roll, Chuuya, Miku, Diluc, Dr. Ratio
+↬ ˚✧┊ Fave characters: Stelle, Cinnamon Roll, Chuuya, Miku, Diluc, Dr. Ratio, Alhaitham
 
 ↬ ˚✧┊ Kins: Aventurine, Furina, Sunday, Sigma (bsd)
 
