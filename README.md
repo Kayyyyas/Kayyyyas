@@ -1,6 +1,6 @@
 ## Heyy, I'm Luh, nice to see you here!
 
-↬ ˚✧┊ I finally did a carrd... creds on it btw.
+↬ ˚✧┊ I finally did a carrd... creds to the tut are on it btw.
 
 ↬ ˚✧┊ I like RPG's, Cozy stuff, cosplay, Miku, Honkai and indie games
 
